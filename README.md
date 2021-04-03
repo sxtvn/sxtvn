@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sxtvn,
 - 👀 I’m interested in programming and other shit. Anything to do with computers.
-- 🌱 I’m currently learning computer science at sunderland university.
+- 🌱 I’m currently learning computer science at university.
 - 💞️ I’m looking to collaborate on nothing really, im on my lonely.
 - 📫 How to reach me you can't im hella tall.
 
